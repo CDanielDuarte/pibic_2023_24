@@ -10,5 +10,8 @@ Este arquivo se trata de um compilado de links de acesso público aos conteúdos
 
 > https://www.canva.com/design/DAGRQ8rwe90/Jya3W9-0nUh7BjWkDAcA0A/edit?utm_content=DAGRQ8rwe90&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
+3. Link para vídeo
+
+> https://www.youtube.com/watch?v=mLJ9nm-bkd4
 
 
